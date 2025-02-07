@@ -3,7 +3,7 @@ I am interested in software engineering, programming, graphic design and games.
 I’m currently learning 
  How to reach me DM or discord NoHackJustme
 Pronouns umm they call me black
-Fun fact i like League of Legends Bro Challenger in Masters 3 in Brazil, I play Minecraft, and other games Bro in my free time I program Minecraft servers
+Fun fact i like League of Legends Bro Challenger las (latam) in Masters 3 seasson in Brazil, I play Minecraft, and other games Bro in my free time I program Minecraft servers
 
 <!---
 SoloFactos/SoloFactos is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
